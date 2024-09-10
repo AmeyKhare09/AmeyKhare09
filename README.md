@@ -1,8 +1,8 @@
 # Hi 👋, I'm Amey Khare
 
-![2b6dfb99ff177e109de25c597e98cc3e](https://github.com/user-attachments/assets/e4aeeb26-7b71-479a-9fd7-a547fe5f9b53)
-
 **Game Developer, Mixed Reality Fanatic and especially A True Gamer**
+
+![2b6dfb99ff177e109de25c597e98cc3e](https://github.com/user-attachments/assets/e4aeeb26-7b71-479a-9fd7-a547fe5f9b53)
 
 ---
 
